@@ -1,6 +1,6 @@
 # 🚀🚀🚀🚀🚀🚀🚀🚀🚀🚀🚀🚀🚀🚀🚀🚀🚀🚀🚀🚀🚀🚀
 
-Members: 
+The Avengers: 
 - Joelle Ayoub
 - Darius Giannoli
 - Alexandre Huou
