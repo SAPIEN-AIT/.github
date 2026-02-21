@@ -8,3 +8,4 @@ The Avengers:
 - Mattia Prandi
 - Karol Wickel
 - Edgard Hall
+- Tristan Carron
